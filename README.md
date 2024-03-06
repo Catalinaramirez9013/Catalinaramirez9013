@@ -11,3 +11,4 @@ Catalinaramirez9013/Catalinaramirez9013 is a ✨ special ✨ repository because 
 You can click the Preview link to take a look at your changes.
 --->
 *//(delete packages from internet)*
+*(delete trackers facebook and Verizon and at&t contacts and cricket wireless companies from device hide ip addresses and Mac and Bluetooth and print services from device)*
