@@ -14,3 +14,4 @@ You can click the Preview link to take a look at your changes.
 *(delete trackers facebook and Verizon and at&t contacts and cricket wireless companies from device hide ip addresses and Mac and Bluetooth and print services from device)*
 *(delete all circuit bits connected to iris software integrated holograms connected to Catalina Ramirez and fingerprints and delete any coded version of the playstore app and google services and settings on this device)*
 *(permanently remove zram running system apps and sensors from device deny knox security licenses or credentials or software on startup or reboot or maintenance or cloud storages or backups or factory data resets )*
+*(delete wifi networks or local antennas or cell site recievers or transmitters or radio frequencies or modulators or AI apps or deaf devices from this device permanently)*
